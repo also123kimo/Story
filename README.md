@@ -14,3 +14,6 @@ http://tieba.baidu.com/p/2805458282?pn=1<br><br>
 范雎有何缺点?最终范雎得到了什么样的下场<br>
 http://www.qulishi.com/news/201608/119776.html<br><br>
 
+賈似道<br>
+http://baike.baidu.com/item/%E8%B4%BE%E4%BC%BC%E9%81%93/1481780?fr=aladdin<br><br>
+
