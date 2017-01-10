@@ -19,3 +19,9 @@ http://baike.baidu.com/item/%E8%B4%BE%E4%BC%BC%E9%81%93/1481780?fr=aladdin<br><b
 
 一个朝代灭亡后被俘的公主们的悲惨下场<br>
 http://tieba.baidu.com/p/4760842947<br><br>
+
+揭秘：中国历史上你可能忽略的十大变态军队<br>
+http://mt.sohu.com/20160206/n437058872.shtml<br><br>
+
+神秘的唐朝特种兵“玄甲军”：几乎无坚不摧<br>
+http://news.qq.com/a/20160217/040649.htm?pgv_ref=aio2015_sogou<br><br>
